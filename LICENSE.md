@@ -1,4 +1,4 @@
-# 
+# Profesional Icecream PDF Editor extensiones para Mac OS | Gratuito Icecream PDF Editor extensiones para PC Windows. Con seguimiento en tiempo real y flujos de trabajo personalizados — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
